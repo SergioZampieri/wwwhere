@@ -4,7 +4,7 @@
 <img src="https://style.shockvisual.net/wp-content/uploads/2019/10/beer-background-ZC2QTEK.jpg" alt=""/>
 </p>
 
-# Grupo13-PF Intrucciones para no terminar matandonos.
+# Intrucciones para no terminar matandonos.
 
 MODELOS
 
